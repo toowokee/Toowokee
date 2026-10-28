@@ -23,6 +23,6 @@
 
 ### 📫 How to reach me
 
-* **Email:** [Hello@nxrofn.com](mailto:Bostondwhite@gmail.com)
+* **Email:** [Bostondwhite@gmail.com](mailto:Bostondwhite@gmail.com)
 * **Twitch:** [https://twitch.tv/Nxrofn](https://www.twitch.tv/nxrofn_)
 * **X / Twitter:** https://x.com/nxrobuilds
